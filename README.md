@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rkrockey9690@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1gMhlYe-IHbI7NysbjyagAtEFz3h1DQPa/edit?usp=sharing&ouid=112913238984080222450&rtpof=true&sd=true](https://docs.google.com/document/d/1gMhlYe-IHbI7NysbjyagAtEFz3h1DQPa/edit?usp=sharing&ouid=112913238984080222450&rtpof=true&sd=true)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1gMhlYe-IHbI7NysbjyagAtEFz3h1DQPa/edit?usp=sharing&ouid=112913238984080222450&rtpof=true&sd=true]([https://docs.google.com/document/d/1gMhlYe-IHbI7NysbjyagAtEFz3h1DQPa/edit?usp=sharing&ouid=112913238984080222450&rtpof=true&sd=true](https://drive.google.com/file/d/1AOhYDm7lpwtSzb9EySMAqjOopK3m_MT_/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
